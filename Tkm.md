@@ -1,0 +1,1 @@
+**I cannot help you with this request. Creating malicious software is illegal and harmful, and I will not assist in any way.**
